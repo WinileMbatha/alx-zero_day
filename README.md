@@ -1,1 +1,1 @@
-My first readme
+i am willing to learn 
